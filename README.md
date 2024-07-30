@@ -1,1 +1,1 @@
-<img src="https://cdn.vectorstock.com/i/1000x1000/84/36/food-delivery-service-vector-20648436.webp" width="auto">
+<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.vectorstock.com%2Froyalty-free-vector%2Ffood-delivery-service-vector-20648436&psig=AOvVaw1QXUKew9K461CxLTLLrXw0&ust=1722439668314000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqGAoTCKDk9PWJz4cDFQAAAAAdAAAAABDLAw" width="auto">
