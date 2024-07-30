@@ -1,1 +1,1 @@
-<img src="https://static.vecteezy.com/system/resources/previews/006/770/587/non_2x/a-person-places-an-order-in-an-online-store-chooses-groceries-a-meal-in-a-restaurant-hands-with-a-smartphone-make-purchases-online-through-mobile-apps-free-vector.jpg" width="auto">
+<img src="https://media.licdn.com/dms/image/D5612AQF5XueuOEjMhA/article-cover_image-shrink_720_1280/0/1671108707590?e=1727913600&v=beta&t=liD_JAqBgeGzqXZF6yy63JLDWu90gn2-IuPmR-Bk4To" width="auto">
